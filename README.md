@@ -1,0 +1,2 @@
+# premium-float-layer-001-tempera-float-layering-glazing
+Stop guessing drying times and losing track of which layer needs a glaze first — your tempera float layers are too delicate to leave to memory.  This Notion template turns the complex, time-sensitive choreography of float layering and glazing into a clear, repeatable schedule. No more ruined surfaces from impatient glazing or missed windows for flo
